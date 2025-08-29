@@ -1,1 +1,0 @@
-# Teamstockinvest.com
